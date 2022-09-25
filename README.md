@@ -1,1 +1,0 @@
-# hayvanat-bahcesi-y-netimi
